@@ -3,7 +3,7 @@
 
 Soy estudiante de la Universidad Politecnica de Aguascalientes de la carrera de **Tecnologias de la Informacion e Innovacion Digital**
 
-[Mi instagram] (https://www.instagram.com/valentina_h.o?igsh=MWVrcGx1OWsxcGttNw%3D%3D&utm_source=qr)
+[Mi instagram](https://www.instagram.com/valentina_h.o?igsh=MWVrcGx1OWsxcGttNw%3D%3D&utm_source=qr)
 
 <!--
 **up250701vho/up250701vho** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
