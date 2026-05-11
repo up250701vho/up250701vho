@@ -2,6 +2,7 @@
 ---
 
 Soy estudiante de la Universidad Politecnica de Aguascalientes de la carrera de **Tecnologias de la Informacion e Innovacion Digital**
+*Cursando segundo cuatrimestre*
 
 [Mi instagram](https://www.instagram.com/valentina_h.o?igsh=MWVrcGx1OWsxcGttNw%3D%3D&utm_source=qr)
 
